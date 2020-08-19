@@ -1,0 +1,2 @@
+So first take the class of water and  lemon. Then take a knife and cut the lemon into half. Then squeeze the lemon in the water and then add some sugar to it.Then mix your Nimboo paani and then drink it.Hope you liked it!
+from a great personality- Sharan Singal
